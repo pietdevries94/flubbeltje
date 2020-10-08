@@ -1,0 +1,1 @@
+Deze schitterende definitie is ongrijpbaar door het juridisch systeem. Daarmee is deze ook niet te onderdrukken door een licentie.
